@@ -1,1 +1,1 @@
-I don't know what I'm doing. 
+I kind of know what I'm doing. 
